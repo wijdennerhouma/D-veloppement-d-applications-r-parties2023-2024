@@ -1,1 +1,1 @@
-# D-veloppement-d-applications-r-parties2023-2024
+# Développement-d-applications-réparties2023-2024
